@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://c.tenor.com/rBGm1p-7uNQAAAAd/tenor.gif" width="500" />
+  <img src="https://c.tenor.com/rBGm1p-7uNQAAAAd/tenor.gif" width="300" />
 </p>
 <h1 align="center">💗 Luci Ashborn 💗</h1>
 <p align="center">
